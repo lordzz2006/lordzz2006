@@ -1,0 +1,6 @@
+- 👋 Hi, I'm @ lordzz2006
+- 👀 I'm interested in BOT WhatsApp
+- 🌱 I'm currently learning BOT FOR WhatsApp
+- 💞️ I want to collaborate with people who are good at making some kind of soc media bot
+- 📫 How to reach Me +62895421348704 Or aryapetoran2006@gmail.com
+- 🇮🇩 Surakarta, Indonesia
